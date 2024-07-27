@@ -1,1 +1,1 @@
-Royal Space Navy is the space force in the British Emprire.
+Royal Space Navy is a space force in the British Emprire.
