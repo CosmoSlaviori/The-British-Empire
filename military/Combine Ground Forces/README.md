@@ -1,1 +1,1 @@
-Combine Ground Forces is a military branch in The Combine.
+Combine Ground Forces is a ground force maintained by the Combine.
