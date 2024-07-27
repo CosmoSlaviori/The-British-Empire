@@ -1,1 +1,1 @@
-Royal Space Navy is a space force maintained by the British Emprire.
+Royal Space Navy is a space force maintained by the British Empire.
